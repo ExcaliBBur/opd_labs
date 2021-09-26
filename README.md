@@ -1,2 +1,2 @@
 # opd_labs
-![hippo](<div class="tenor-gif-embed" data-postid="18770062" data-share-method="host" data-aspect-ratio="1.78771" data-width="100%"><a href="https://tenor.com/view/moan-anime-animemoan-gif-18770062">Moan Anime GIF</a>from <a href="https://tenor.com/search/moan-gifs">Moan GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
+![hippo](https://media.giphy.com/media/3NmX5qyU5d5bZoFBaa/giphy.gif?cid=790b7611a107bb42ba66ba650b4da83adea29bba4f77e09a&rid=giphy.gif&ct=g)
